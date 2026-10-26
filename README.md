@@ -6,6 +6,8 @@
 
   ### Você pode entrar em contato comigo
 
+  [linkedin.com/in/yanayne-benetti-barbosa-b6342244]
+
  [Linkedin: Yanayne](linkedin.com/in/yanayne-benetti-b6342244)
 
   ![]( https://media1.tenor.com/m/y2JXkY1pXkwAAAAC/cat-computer.gif  )
